@@ -1,41 +1,23 @@
 <p align="center"> 
-$\color{#1A66BB} 𝚈𝚘𝚞‎ 𝚐𝚎𝚝‎ 𝚒𝚝‎ 𝚛𝚒𝚐𝚑𝚝?‎ 𝚂𝚝𝚛𝚊𝚝𝚎𝚐𝚢‎ 𝚒𝚜‎ 𝚊𝚕𝚕‎ t𝚑𝚊𝚝‎ 𝚖𝚊𝚝𝚝𝚎𝚛𝚜‎ i𝚗‎ 𝚊‎ c𝚊𝚛𝚍‎ g𝚊𝚖𝚎.$ <br>
 <p align="center">
-<img width="1040" height="133" alt="tumblr_a10f72fdf76e739013e60441fdcd7094_b63daaa9_1280" src="https://github.com/user-attachments/assets/ad7ee7d7-5ace-4556-b26f-f4ee74b948fb" />
+<img width="1040" height="133" alt="https://64.media.tumblr.com/51bdc06ae3d9af1bf50a0287dad3d7df/055077bfc3e08bab-d2/s1280x1920/4ccd656d1c8f6d8858f8bf9385b306f84d6da4a3.pnj" src="https://64.media.tumblr.com/51bdc06ae3d9af1bf50a0287dad3d7df/055077bfc3e08bab-d2/s1280x1920/4ccd656d1c8f6d8858f8bf9385b306f84d6da4a3.pnj" />
 
 
 
   
 
-  <p align="center"><img align="center" width="80" height="80" src="https://github.com/user-attachments/assets/bd2eb17e-310e-4c7e-a41a-7c75750b197a">
-  <p align="center"><img align="left" width="80" height="80" src="https://github.com/user-attachments/assets/50b1cf36-7851-456f-b486-5a73ae3da5b2">    <p align="right">
-$\color{#ADD8E6}  ‎   beverly  .$ <br>  
-  <p align="center"><img align="right" width="80" height="80" src="https://github.com/user-attachments/assets/661b3f83-4de4-4d52-97b7-552dc28a4b15">
+  <p align="center"><img align="center" width="80" height="80" src="https://64.media.tumblr.com/4e284824abd3e46e61b32388e8f3667b/7e4cf5fa9b3f0e75-ba/s400x600/985a70239eb6140af6fd473a949f09decaa72dc1.pnj">
+  <p align="center"><img align="left" width="80" height="80" src="https://64.media.tumblr.com/ea38a809ccfd58fec42ed8882a05fbd2/87146ba8221afd56-90/s400x600/7c71b7a0bb1e705b82a63e4e0d696e633db10976.pnj">    <p align="right">
+$\color{#CAE89B}  ‎   beverly  .$ <br>  
+  <p align="center"><img align="right" width="80" height="80" src="https://64.media.tumblr.com/c33184e0d5f0834543a946c464cea429/732d471af471dcf1-1a/s400x600/f07d1afe4b61d07bae9bd5ccb4b1fe397443db0f.pnj">
 
 
-  $\color{#42A5F5}  ‎   :3 .$ <br>
-$\color{#4FC3F7}  ‎   they/it .$ <br>
+  $\color{#A5BD8A}  ‎   :3 .$ <br>
+$\color{#A5BD8A}  ‎   they/it .$ <br>
 
   <p align="center">
-    $\color{#1A66BB} iwc. i dont wanna put a dni list rn.$ <br>
-
-  
-  (other than that, feel free to int!!! i dont bite i PROMISE i love making conversation!
-    im highkey shy so its better to whisper me.
-    
-$\color{#1A66BB}  ‎   “ i ‎ am ‎ terrible ‎ at ‎ social‎  cues,‎  comforting‎  people‎ .$ <br>
-   $\color{#1A66BB}  or ‎ talking ‎ about ‎ heavy ‎ topics. ‎ please ‎ dont ‎ vent‎  to ‎ me ‎ unless‎  i‎ ‎ allow ‎ you ‎ to. ”  .$ <br>
-  <p align="center">
-     $\color{#26C6DA}  ‎   “total.”$ <br>  $\color{#26C6DA}  ‎   “misplay.”$ <br>
-  <p align="center">
-   𝚌+𝚑 𝚑𝚒𝚐𝚑𝚕𝚢 𝚎𝚗𝚌 !!, $\color{#4FC3F7}  ‎  𝚞𝚜𝚞𝚊𝚕𝚕𝚢‎ 𝚒𝚗𝚜𝚒𝚍𝚎/by‎ 𝚋𝚊𝚔𝚎𝚛𝚢‎ or‎ docks    .$ <br>
 
 
-  <p align="center"><img align="center" width="540" height="133" src="https://github.com/user-attachments/assets/6a920df2-cc0d-4ab4-b8ea-35af2aef08fe">
 
-<p align="center">
-  <p align="center"><img align="center" width="200" height="200" src="https://github.com/user-attachments/assets/91fe7f55-2c2b-4468-96ac-8cee13762367">
-<p align="left">
-art credit: $\color{#1A66BB}  ‎   “ rojen ”  .$ <br>
+  <p align="center"><img align="center" width="540" height="133" src="https://64.media.tumblr.com/7481f4a81fc0fa4acd9b8e4122262b08/efa59677884e5c34-ea/s1280x1920/ed4b9c34744d6a90e57f772c2cd0f60ea9d0b026.pnj">
 
-<img width="607" height="273" alt="image" src="https://images.artfight.net/character/qr3J76pNKBM8MmGIJap556MeoRljIry5NgopEpGfi7L8Btl6B5kWQDCbi691.png?t=1783108346" />
